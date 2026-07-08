@@ -1,4 +1,4 @@
-# ASVERSE ✨
+# ASVERSE 
 
 ### About **ASVERSE**
 
